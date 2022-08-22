@@ -1,0 +1,1 @@
+I am a Mechatronics Engineering student at the University of Canterbury, currently completing the penultimate year of my degree. I love tinkering and starting new hobby projects. This page shows off some of these projects. 
